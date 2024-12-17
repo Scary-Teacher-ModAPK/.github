@@ -42,7 +42,8 @@ The modded version enhances the game with:
 - **Scary Teacher 3D Mod APK Unlock All Chapter** for full access to the game.  
 - **Improved User Experience** with smoother, ad-free gameplay.  
 
-![Uploading maxresdefault (9).jpg…]()
+![maxresdefault (9)](https://github.com/user-attachments/assets/e0fbda15-d2d3-4538-a1d2-5eb31fa631f1)
+
 
 
 ### Pros  
